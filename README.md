@@ -1,7 +1,7 @@
 # Hey I'm Evanzz!!
 
 ## Contact
-evanzzshrestha7@gmail.com
+Email: evanzzshrestha7@gmail.com
 -
 
 ## Top Langs
